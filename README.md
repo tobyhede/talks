@@ -5,4 +5,4 @@ https://creativecommons.org/licenses/by/3.0/
 
 Take and Remix, but probably remove the branding. 
 
-Hot orange branding courtesy of amaysim (amaysim.com.au)
+Hot orange branding courtesy and copyright of amaysim (amaysim.com.au)
